@@ -1,2 +1,2 @@
-# untuk sayang tercinta
+# untuk sayang tercinta.github.io
 -
