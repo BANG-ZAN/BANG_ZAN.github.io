@@ -1,2 +1,2 @@
-# kado
+# untuk sayang tercinta
 -
